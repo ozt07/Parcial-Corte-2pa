@@ -1,0 +1,1 @@
+# Parcial-Corte-2pa
